@@ -1,1 +1,1 @@
-![bannersoftcoolgithub](https://github.com/user-attachments/assets/656cad24-82e2-48e9-bce3-16b9bddf2cbc)
+![bannerlgithubsoftcool](https://github.com/user-attachments/assets/8f925426-e7fd-4c9c-9b34-b4927e4517df)
